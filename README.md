@@ -1,1 +1,0 @@
-# guvetss.github.io
